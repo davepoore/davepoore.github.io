@@ -1,1 +1,0 @@
-# davepoore.github.io
